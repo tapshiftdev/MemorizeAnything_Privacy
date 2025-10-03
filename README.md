@@ -1,2 +1,8 @@
-# MemorizeAnything_Privacy
-Privacy Policy for ios MemorizeAnything app - We don't collect any data
+# MemorizeAnything Privacy Policy
+
+
+
+
+---
+
+© 2025 TapShiftDev. All rights reserved.
